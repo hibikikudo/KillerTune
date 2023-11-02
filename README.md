@@ -1,3 +1,3 @@
 # KillerTune
-[https://lnk.to/hibikilla_killertune](KillerTune)
+[KillerTune](https://lnk.to/hibikilla_killertune)
 歌詞です。
